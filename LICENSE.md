@@ -1,4 +1,4 @@
-# 
+# elite new token sniper bot | auto-buy + dex-sniping offers the most advanced new token sniper bot, with auto-buy and dex-sniping. Ideal for professional MEV and sniper traders.
 
 
 
